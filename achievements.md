@@ -10,4 +10,4 @@
 
 ## Courses  
 - Completed **Research Methodology (NPTEL)** – 71%
-- Completed **Jus Corpus Basic Drafting Course **
+- Completed **Jus Corpus Basic Drafting Course**
