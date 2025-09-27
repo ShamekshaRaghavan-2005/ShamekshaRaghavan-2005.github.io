@@ -12,3 +12,10 @@
 ## Advocate Balasubramanium (Criminal Side, 1 Month)  
 - Assisted in criminal case preparations.  
 - Observed courtroom proceedings and client interactions.
+
+---
+- ## Online Internship at Nyayasarthak
+- Drafted Divorce Petition  
+- Framed a sale deeds
+- Attended online lectures 
+
