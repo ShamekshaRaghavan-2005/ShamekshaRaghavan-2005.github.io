@@ -3,7 +3,7 @@
 **Law Student | Aspiring Legal Professional**  
 📍 Thanjavur, Tamil Nadu  
 📞 9894504148 / 9790201617  
-✉️ [128087040@sastra.ac.in](mailto:shamekshar@gmai.com) 
+✉️ [shamekshar@gmail.com](mailto:shamekshar@gmai.com) 
 
 ---
 
