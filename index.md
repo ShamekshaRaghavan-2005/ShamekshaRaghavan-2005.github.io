@@ -3,7 +3,7 @@
 **Law Student | Aspiring Legal Professional**  
 📍 Thanjavur, Tamil Nadu  
 📞 9894504148 / 9790201617  
-✉️ [128087040@sastra.ac.in](mailto:128087040@sastra.ac.in)  
+✉️ [128087040@sastra.ac.in](mailto:shamekshar@gmai.com) 
 
 ---
 
@@ -16,7 +16,7 @@ Motivated and detail-oriented law student with strong research and advocacy skil
 - **B.A. LL.B (Hons.)**, SASTRA Deemed University, Thanjavur (Pursuing, 3rd Year)  
   *CGPA: 7.98*  
 
-- **Class 12 (CBSE)** – KMC Public School, Tirupur (2020)  
+- **Class 12 (CBSE)** – KMC Public School, Tirupur (2023)  
   *92%*  
 
 - **Class 10 (CBSE)** – Subbiah Central, Tirupur (2018)  
