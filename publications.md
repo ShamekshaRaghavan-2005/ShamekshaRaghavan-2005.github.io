@@ -17,5 +17,5 @@
 
  - **Book Chapter**:The Legal and Ethical Landscape of Attempted Suicide: A Comparative and Historical Analysis
 
--  **Case Commentary**:[Murlidhar Vincom V Skoda Pvt.Ltd](https://www.legalserviceindia.com/Legal-Articles/murlidhar-vincom-pvt-ltd-v-skoda-india-pvt-ltd-2024/html)    
-
+-  **Case Commentary**:[Murlidhar Vincom V Skoda Pvt.Ltd](https://www.legalserviceindia.com/Legal-Articles/murlidhar-vincom-pvt-ltd-v-skoda-india-pvt-ltd-2024/)
+- 
