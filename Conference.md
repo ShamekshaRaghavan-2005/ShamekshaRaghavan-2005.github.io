@@ -1,10 +1,6 @@
-📢 International Research Conference 2025  
-
-Welcome to the official page of the **International Research Conference 2025**.  
-This page provides key information about the event, agenda, and participation details.  
+## International Research Conference on "Maritime Law" by TNDALU 2025  
 
 ---
-
 ## 🗓️ Event Details
 - **Date:** 15 April 2025  
 - **Location:** Virtual + In-Person (Chennai, India)  
