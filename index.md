@@ -29,7 +29,11 @@ Motivated and detail-oriented law student with strong research and advocacy skil
 ---
 
 ## Quick Links
-- [Internship Experience](experience.md)  
-- [Publications](publications.md)  
+- [Internship Experience](experience.md)
+- [Courses](courses.md)
 - [Moot Court & Achievements](achievements.md)
+- [Publications](publications.md)
+- [Conferences](conferences.md)
 - [Membership](membership.md)
+  
+  
