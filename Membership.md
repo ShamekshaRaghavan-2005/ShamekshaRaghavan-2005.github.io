@@ -1,15 +1,11 @@
----
-title: "Memberships"
----
-
-# 📚 Memberships
-
-Here are the courses and certifications I’ve completed:  
-
-- **Member of WIPO ADR YOUNG**  
-- **Shesphere initiated by PINK LEGAL**  
+# Membership
 
 ---
 
-[⬅ Back to Home](index.md)
+## WIPO ADR YOUNG
+
+---
+
+## SheSphere Legal initiated by Pink Legal  
+
 
