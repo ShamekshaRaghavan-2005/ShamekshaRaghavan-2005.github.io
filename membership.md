@@ -1,5 +1,3 @@
-# Shesphere Legal by Pink Legal
-
-# WIPO YOUNG ADR MEMBER
-
+# Shesphere Legal by Pink Legal  
+## WIPO Young ADR Member  
 
