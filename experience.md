@@ -19,3 +19,8 @@
 - Framed a sale deeds
 - Attended online lectures 
 
+---
+## Online Internship at Legal Quorum
+-Case Commentary
+-Legal Article
+-Formating Citations
