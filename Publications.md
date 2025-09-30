@@ -1,4 +1,4 @@
-# publications  
+# Publications  
 
 ---
 
@@ -12,8 +12,3 @@
 
 - *“Attempted Suicide in India: A Legal and Ethical Analysis”*  
   IJNRD Volume 9 Issue 10
-
-  -**Glimpse of  BHARATIYA NYAYA SANHITA** ELR
-
-  -**Case Commentary**:[Murlidhar vs Skoda Pvt Ltd ](https://www.legalserviceindia.com/legal/article-18518-shayara-bano-vs-union-of-india-landmark-case-on-triple-talaq-and-women-s-rights-in-india.html)  
-
