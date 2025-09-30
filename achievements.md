@@ -9,10 +9,10 @@
 be University, 2024.
 - Connaissance Appellate Moot Court Competition/ SASTRA Deemed to be
 University, 2024.
--Connaissance Trial Moot Court Competition/ SASTRA Deemed to be
+- Connaissance Trial Moot Court Competition/ SASTRA Deemed to be
 University, 2025.
--Connaissance Client Counselling Competition/ SASTRA Deemed to be
-University, 2025
+- Connaissance Client Counselling Competition/ SASTRA Deemed to be
+University, 2025.
 
 ---
 
