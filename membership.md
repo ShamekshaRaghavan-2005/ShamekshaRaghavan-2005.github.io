@@ -1,7 +1,6 @@
-# Membership 
+# 🌐 Memberships  
 
----
+## Professional & Community Memberships  
 
-## WIPO YOUNG ADR MEMBER  
-
-## Shesphere initiated by Pink Legal
+- **WIPO Young ADR Member**  
+- **Shesphere (Initiated by Pink Legal)**  
