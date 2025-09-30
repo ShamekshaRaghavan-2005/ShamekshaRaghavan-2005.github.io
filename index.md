@@ -33,7 +33,7 @@ Motivated and detail-oriented law student with strong research and advocacy skil
 - [Courses](courses.md)
 - [Moot Court & Achievements](achievements.md)
 - [Publications](publications.md)
-- [Conferences](conferences.md)
+- [conferences](conferences.md)
 - [Membership](membership.md)
   
   
