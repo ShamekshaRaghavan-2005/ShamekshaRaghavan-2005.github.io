@@ -4,6 +4,8 @@
 📍 Thanjavur, Tamil Nadu  
 📞 9894504148 / 9790201617  
 ✉️ [shamekshar@gmail.com](mailto:shamekshar@gmai.com) 
+https://www.linkedin.com/in/shameksha-raghavan-1b5251296?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
 
 ---
 
@@ -26,5 +28,6 @@ Motivated and detail-oriented law student with strong research and advocacy skil
 
 ## Quick Links
 - [Internship Experience](experience.md)  
-- [Publications](publications.md)  
+- [Publications](Publications.md)  
 - [Moot Court & Achievements](achievements.md)
+- [Membership](membership.md)
