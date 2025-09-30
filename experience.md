@@ -21,6 +21,6 @@
 
 ---
 ## Online Internship at Legal Quorum
-- Case Commentary
-- Legal Article
-- Formating Citations
+-  Case Commentary
+-  Legal Article
+-  Formating Citations
