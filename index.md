@@ -27,11 +27,14 @@ Motivated and detail-oriented law student with strong research and advocacy skil
 
 ---
 
-# 🛠️ Skills  
+## 🛠️ Skills  
 
-- Public Speaking  
-- Literary Writing  
-- Legal Writing  
+- Public Speaking
+   
+- Literary Writing
+  
+- Legal Writing
+ 
 - Time Management
 
   ---
