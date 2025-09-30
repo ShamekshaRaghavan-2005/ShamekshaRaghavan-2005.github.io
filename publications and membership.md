@@ -18,11 +18,8 @@
 - **“Glimpse of Bharatiya Nyaya Sanhita ”**  
   *ERLR*
 
-# Membership 
 
----
 
-**Shesphere Legal by Pink Legal**  
-**WIPO Young ADR Member** 
+
   
 ---
