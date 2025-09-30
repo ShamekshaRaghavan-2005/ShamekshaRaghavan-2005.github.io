@@ -27,6 +27,15 @@ Motivated and detail-oriented law student with strong research and advocacy skil
 
 ---
 
+# 🛠️ Skills  
+
+- Public Speaking  
+- Literary Writing  
+- Legal Writing  
+- Time Management
+
+  ---
+
 ## Quick Links
 - [Internship Experience](experience.md)
 - [Courses](courses.md)
