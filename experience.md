@@ -14,7 +14,8 @@
 - Observed courtroom proceedings and client interactions.
 
 ---
- ## Online Internship at Nyayasarthak
+
+## Online Internship at Nyaysarthak
 - Drafted Divorce Petition  
 - Framed a sale deeds
 - Attended online lectures 
