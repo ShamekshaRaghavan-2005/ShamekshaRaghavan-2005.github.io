@@ -17,7 +17,3 @@
 
   -**Case Commentary**:[Murlidhar vs Skoda Pvt Ltd ](https://www.legalserviceindia.com/legal/article-18518-shayara-bano-vs-union-of-india-landmark-case-on-triple-talaq-and-women-s-rights-in-india.html)  
 
-
-
-  
----
