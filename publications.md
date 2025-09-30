@@ -13,9 +13,9 @@
 - **“Attempted Suicide in India: A Legal and Ethical Analysis”**  
   IJNRD Volume 9 Issue 10
 
-  -**Glimpse of Bharathiya Nyaya Sanhita** ELR
+- **Glimpse of Bharathiya Nyaya Sanhita** ELR
 
-  -**Book Chapter**:The Legal and Ethical Landscape of Attempted Suicide: A Comparative and Historical Analysis
+ - **Book Chapter**:The Legal and Ethical Landscape of Attempted Suicide: A Comparative and Historical Analysis
 
   -**Case Commentary**:[Murlidhar Vincom Pvt v Skoda] (https://www.legalserviceindia.com/Legal-Articles/murlidhar-vincom-pvt-ltd-v-skoda-india-pvt-ltd-2024/)  
 
