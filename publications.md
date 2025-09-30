@@ -12,3 +12,8 @@
 
 - **“Attempted Suicide in India: A Legal and Ethical Analysis”**  
   *IJNRD Volume 9 Issue 10*
+
+- **Case Commentary**: [Murlidhar Vincom Pvt Ltd vs Skoda Pvt Ltd )(https://www.legalserviceindia.com/Legal-Articles/murlidhar-vincom-pvt-ltd-v-skoda-india-pvt-ltd-2024/)
+
+- **“Glimpse of Bharatiya Nyaya Sanhita ”**  
+  *ERLR*
