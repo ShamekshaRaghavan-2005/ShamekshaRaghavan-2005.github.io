@@ -3,10 +3,10 @@
 ---
 
 - **“Exploring the Dynamics and Implications of Live-in Relationships: A Comprehensive Analysis”**  
-  IJFMR Volume 5 Issue 6 (2)	(1)	https://www.ijfmr.com/research-paper.php?id=6064)
-
+  IJFMR Volume 5 Issue 6 (2)(https://www.ijfmr.com/research-paper.php?id=6064)
+  
 - **“The Transformative Power Of Universalised Wages”**  
-  IJLRA Volume 2 Issue 7  (https://www.ijlra.com/paper-details.php?isuurl=the-transformative-power-of-universalized-wage-by-ms-shameksha-r) 
+  IJLRA Volume 2 Issue 7(https://www.ijlra.com/paper-details.php?isuurl=the-transformative-power-of-universalized-wage-by-ms-shameksha-r) 
 
 - **Case Commentary**: [Shayara Bano vs Union of India](https://www.legalserviceindia.com/legal/article-18518-shayara-bano-vs-union-of-india-landmark-case-on-triple-talaq-and-women-s-rights-in-india.html)  
 
