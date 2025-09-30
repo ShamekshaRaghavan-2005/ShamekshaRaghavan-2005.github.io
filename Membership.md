@@ -1,11 +1,5 @@
-# Membership
+# Shesphere Legal by Pink Legal
 
----
-
-## WIPO ADR YOUNG
-
----
-
-## SheSphere Legal initiated by Pink Legal  
+# WIPO YOUNG ADR MEMBER
 
 
