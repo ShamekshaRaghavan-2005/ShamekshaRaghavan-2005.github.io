@@ -14,3 +14,7 @@ University, 2025.
 - Connaissance Client Counselling Competition/ SASTRA Deemed to be
 University, 2025.
 
+----
+#Judgement Writing Competition 
+- Participated in Judgement Writing Competition organized  by Chankya University
+
