@@ -34,7 +34,7 @@
 -  Video Explanations
 
 ----
- ## Online Internship at Vintage Legal 
+## Online Internship at Vintage Legal 
 -  Case Commentary
 -  Legal Article
 -  Employment Contract
