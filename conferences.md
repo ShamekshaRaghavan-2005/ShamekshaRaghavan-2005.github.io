@@ -16,4 +16,4 @@
    -----
  ## *Tamilnadu Legal Rights Consortium Webinar* – "Women,Work & Rights"  
   - 📍 Virtual Mode  
-  - 📅 Date: 5 April 2025
+  - 📅 Date: 10 December 2025
